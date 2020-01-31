@@ -1,23 +1,27 @@
 # THBT we cannot thrive without religion
 
-[Oxford Union Society | Religion Debate Series](https://www.youtube.com/watch?v=iyaZIygi5xc)
+The debate took place at Oxford Union Society. Below are summary and excerpt of some speaker's speech. 
 
-## Opposition ([LO](https://www.youtube.com/watch?v=pgLMkJGvmso))
+_Source: [Oxford Union Society | Religion Debate Series](https://www.youtube.com/watch?v=iyaZIygi5xc)_
 
-_General argument against religion_
+## Opposition | LO ([Youtube](https://www.youtube.com/watch?v=pgLMkJGvmso))
+
+_LO's speech provides a general argument against religion._
+
+The speech:
 
 In order for this to be true, there must be an inalienable part, aspect, a work of this institution, that makes it crutial for our collective economic, social, and moral progress, that makes it crucial for us to thrive, in all sense of the word, as a society.
 
 The word religion encompasses a number of ideas, including the belief and worship of a supernatural being. We all know that religion emcompasses more than these, including the institution, and cultral practices, surrounding these beliefs. It is these institutions and practices that we can't thrive without, rather than necessarily the belief or the things itself. Let me also clarify that it is not so enough to prove that religion stops us from florishing, or that it is ambivalent; just that it is not a necessary condition for the continuing achievement of our collective goals. 
 
-With these in mind, and with the limited time available to me, I am going to focus on two reasons in support of the opposition.
+With these in mind, and with the limited time available to me, I am going to focus on two reasons in support of the opposition:
 
 1. The religions hinder intellectual progress due to its traditional doctrine
 2. it extends the persecution of group throughtout the globe, by restricting us to an outdated set of values, and code of morality.
 
-## Proposition ([MG](https://www.youtube.com/watch?v=DldKPf5QBn4))
+## Proposition | MG ([Youtube](https://www.youtube.com/watch?v=DldKPf5QBn4))
 
-_The Inherent Goodwill of Religious Beliefs_
+_MG's speech provides insight into the inherent goodwill of religious beliefs._
 
 Summary:
 
