@@ -1,4 +1,4 @@
-# THBT we cannot thrive without religion
+# THBT we cannot thrive without religion 
 
 The debate took place at Oxford Union Society. Below are summary and excerpt of some speaker's speech. 
 
